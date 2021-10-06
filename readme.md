@@ -1,0 +1,1 @@
+I choose the CE path becouse I like coding more then the hard ware aspect of ECE and personaly I like the joy I get when a code finlly works. 
